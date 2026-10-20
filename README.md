@@ -1,7 +1,7 @@
 ## My Original Quotes
 My book is life and my imagination is my teacher - Y.C. Eugene Chung
 
-## Most Popuplar Sayings
+## Most Popular Sayings
 It is what it is - since childhood
 
 ## Memes
