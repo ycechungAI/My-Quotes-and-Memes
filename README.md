@@ -47,7 +47,9 @@ A tie between MJ and Terry Fox
 13. built a working operating system as a team in 2B and got 100% - 2010
 14. have a mental breakdown and drop out of school - 2011
 15. started going to Church and praying for world peace - 2011
-    < recovery-gap >
+
+-.  < recovery-gap >
+
 16. with a drop of 50 from 180 IQ still finished in a different school in Arts - 2018
 17. Christian Baptism and started taking church roles more seriously - 2018
 18. started school again because I still feel inferior and uncomfortable - 2019
