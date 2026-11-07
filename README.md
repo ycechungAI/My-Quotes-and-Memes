@@ -1,5 +1,5 @@
 ## My Original Quotes
-My book is life and my imagination is my teacher - Y.C. Eugene Chung
+My book is life and my imagination is my teacher - Y.C. Eugene Chung (1990 - 2026)
 
 ## Most Popular Sayings
 It is what it is - since childhood
