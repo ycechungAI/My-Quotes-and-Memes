@@ -20,9 +20,13 @@ John MacArthur (1939 - 2025)
 A tie between MJ and Terry Fox
 
 ## Other Favourite Quotes
-"Your time is limited, so don't waste it living someone else's life." — Steve Jobs
-“Be the change that you wish to see in the world.” — Mahatma Gandhi
-“The only true wisdom is in knowing you know nothing.” — Socrates
-“Love your enemies and pray for those who persecute you.” — Matthew 5:44
-“Know Thyself” - Temple of Apollo at Delphi
+1. "Your time is limited, so don't waste it living someone else's life." — Steve Jobs
+
+2. “Be the change that you wish to see in the world.” — Mahatma Gandhi
+
+3. “The only true wisdom is in knowing you know nothing.” — Socrates
+
+4. “Love your enemies and pray for those who persecute you.” — Matthew 5:44
+
+5. “Know Thyself” - Temple of Apollo at Delphi
 
