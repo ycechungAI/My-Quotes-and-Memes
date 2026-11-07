@@ -17,6 +17,9 @@ A tie between Sir Issac Newton and Albert Einstein
 ## Favourite Bible teacher besides Jesus Christ
 John MacArthur (1939 - 2025)
 
+## Important Choice
+Arminius is more aligned to my values as God has given us the choice while still being all knowing, all powerful because being a Calvinist is the easier route not the most correct one in my opinion.  I believe in the Father God, the Holy Spirit and Jesus Christ as three triune body one God.  I believe in the resurrection of Jesus Christ, that he died and in three days rose from the grave as it is pivital to my faith.
+
 ## Favourite Athlete
 A tie between MJ and Terry Fox
 
@@ -60,3 +63,7 @@ A tie between MJ and Terry Fox
 23. traveled to many parts of the World - 2023 to 2025
 24. made various software projects including feather, Newsixity & other secret projects - 2026
 25. RIP
+
+
+## DISCLAIMER
+This README.md is entirely about me as a person and a reference to me only, if you feel offended or disrespected, it is not the intent of this article. You can choose to ignore this and move on with your life as I have recorded it here so that others may know of my religious and personal beliefs.  I am not advertising this to the world, it is only to keep as a record.  It is not to be used or modified without my consent unless u are referring to another person other than Yiu Chun Eugene Chung.  I am not accountable for the loss of brain cells or negativity it caused you from reading this nor am I responsible for how you think about the topics displayed here.  It is merely mostly stating facts.
