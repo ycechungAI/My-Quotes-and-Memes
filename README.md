@@ -1,6 +1,6 @@
 ## My Original Quotes
-My book is life and my imagination is my teacher - Y.C. Eugene Chung (1990 - 2050)
-Sharing is Caring but knowing what to share and pass down is more important
+1. My book is life and my imagination is my teacher - Y.C. Eugene Chung (1990 - 2050)
+2. Sharing is Caring but knowing what to share and pass down is more important
 
 ## Most Popular Sayings
 It is what it is - since childhood
